@@ -6,4 +6,4 @@
 
 💞️ Je suis à la recherche de partenaires de code pour collaborer sur des projets innovants. Si tu partages mon rêve d’un monde sans bugs (oui, je sais, c’est utopique), on devrait bien s’entendre.
 
-📫 N’hésite pas à me contacter ici ou sur les réseaux sociaux. Promis, je ne mords pas... enfin, pas souvent. 😉
+📫 N’hésite pas à me contacter ici ou sur les réseaux sociaux. 😉
